@@ -1,0 +1,5 @@
+THIS BOT IS UNDER DEVELOPMENT, ACCEPT ALL GUILD OPTIONS ON THE Discord Developers Portal, AND THE BOT WILL BE READY, I HAVE ALREADY UPDATED THE CODE, IT IS IN Portuguese (Brazil).
+
+
+
+Yours sincerely... theuzxxxx
